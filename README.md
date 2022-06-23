@@ -1,11 +1,11 @@
-Julia Faccio 
+<hr/> Julia Faccio <hr/> 
 - 14 anos 
 - Maringá/PR
 - Violonista e cantora
 
-Anna Hespanha
+<hr/> Anna Hespanha<hr/> 
 - 14 anos
 - Maringá/PR
 - Ama doguinhos
 
-<span>best friends<span>
+best friends
