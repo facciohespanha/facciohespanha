@@ -6,6 +6,6 @@ Julia Faccio
 Anna Hespanha
 - 14 anos
 - Maringá/PR
-- Tecladista e cantora
+
 
  best friends
