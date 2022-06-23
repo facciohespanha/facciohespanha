@@ -6,6 +6,6 @@ Julia Faccio
 Anna Hespanha
 - 14 anos
 - Maringá/PR
+- Ama doguinhos
 
-
- best friends
+<i> best friends<i>
