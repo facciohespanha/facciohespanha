@@ -8,4 +8,4 @@ Anna Hespanha
 - Maringá/PR
 - Ama doguinhos
 
-<pre>best friends<pre>
+<span>best friends<span>
